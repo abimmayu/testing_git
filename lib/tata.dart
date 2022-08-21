@@ -1,1 +1,1 @@
-// Tata cantik.
+// Tata cantik
